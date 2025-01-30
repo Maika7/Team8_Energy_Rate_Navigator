@@ -1,1 +1,0 @@
-# Team8_Energy_Rate_Navigator
